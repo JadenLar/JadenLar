@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @JadenLar
 - 👀 I'm interested in Cybersecurity and many coding languages 
-- 🌱 I’m currently learning Java devolopment 
+- 🌱 I’m currently learning how to make a online casino :D 
 - 📫 How to reach me ...
 - Instagram @jadenlarmour5
 - Twitter @jadenlarmour5
